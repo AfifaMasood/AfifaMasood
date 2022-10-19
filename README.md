@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AfifaMasood 
+- 👀 I’m interested in the field of software engineering and ethical hacking 
+- 🌱 I’m currently learning Bs software engineering from PUCIT 
+- 📫 How to reach me https://www.linkedin.com/in/afifa-masood-004b11253
+
+
+
